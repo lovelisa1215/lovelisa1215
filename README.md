@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lovelisa1215
+- 👀 I’m interested in web3
+- 🌱 I’m currently learning c+
+-
